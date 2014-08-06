@@ -19,21 +19,5 @@ Give me fuel, give me fire.
 Taste the meat, not the heat.
 Peppercorn crust?
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+=======
+Once more with feeling.
